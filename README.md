@@ -1,2 +1,5 @@
 # oniondark.github.io
-meu web site
+cria do rj
+jogador de Minecraft e pg3d
+estudo russo francês e programação
+odeio bolivianos 
